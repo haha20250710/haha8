@@ -10,4 +10,4 @@
 
 本平台提供丰富的日韩中文字幕在线观看视频资源，涵盖国产精品国产三级野外国产和伦国产精品一区二区三区视频等多种精彩内容。用户可享受高清流畅的播放体验，轻松找到自己喜爱的影片类型，满足多样化观看需求。
 
-<span style="display:none;">[Canonical link]()</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250710/haha8)</span>
